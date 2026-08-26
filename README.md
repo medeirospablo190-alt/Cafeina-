@@ -1,2 +1,0 @@
-# Cafeina-
-Script básico Roblox 
